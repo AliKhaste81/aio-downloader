@@ -7,6 +7,1143 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/20 20:08
+---
+
+## VahidOOnLine — post 239340
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239340_1778431106.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بولونیا | ایتالیا؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239339
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239339_1778431109.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️عبدالرضا رحمانی فضلی، سفیر و نماینده ویژه رئیس‌جمهوری ایران در چین، روز یکشنبه اعلام کرد هرگونه توافق احتمالی باید با ضمانت قدرت‌های بزرگ همراه باشد و چین می‌تواند به عنوان ضامن چنین توافقی مطرح شود.
+رحمانی فضلی در پیامی در شبکه اجتماعی ایکس نوشت هر توافق احتمالی باید در شورای امنیت سازمان ملل نیز مطرح شود و از حمایت قدرت‌های بزرگ برخوردار باشد.
+او افزود چین و روسیه دو قدرت بزرگ و تاثیرگذار هستند و با توجه به جایگاه چین برای ایران و کشورهای منطقه خلیج فارس، پکن می‌تواند به عنوان ضامن هرگونه توافق احتمالی ایفای نقش کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239338
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239338_1778431110.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از ایران: «بدون نصب، عضو اپ‌های حکومتی شدم»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239337
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239337_1778431112.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده نشان می‌دهند یکشنبه ۲۰ اردیبهشت ایرانیان مقیم شهرهای مونیخ در آلمان، وین اتریش و آرهوس دانمارک علیه جمهوری اسلامی تجمع کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239336
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239336_1778431116.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+دوبلین | ایرلند؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239335
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239335_1778431119.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+بیرمنگام | بریتانیا؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239334
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239334_1778431121.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، ایرانیان ساکن هلند و جمهوری چک، یکشنبه ۲۰ اردیبهشت با فراخوان شاهزاده رضا پهلوی و در اعتراض به اعدام‌های جمهوری اسلامی، در شهرهای آمستردام و پراگ تجمع کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239333
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239333_1778431124.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در گفت‌وگو با سی‌بی‌اس نیوز گفت جنگ با ایران تمام نشده، زیرا به گفته او هنوز اورانیوم غنی‌شده، سایت‌های غنی‌سازی، نیروهای نیابتی مورد حمایت ایران و برنامه موشک‌های بالستیک باقی مانده‌اند.
+
+نتانیاهو گفت بخش زیادی از توان جمهوری اسلامی تضعیف شده، اما هنوز «کارهایی هست که باید انجام شود».
+
+او درباره چگونگی خارج کردن اورانیوم با غنای بالا از ایران گفت در صورت وجود توافق، می‌توان وارد شد و آن را خارج کرد و این «بهترین راه» است.
+
+نتانیاهو در پاسخ به این پرسش که آیا بدون توافق می‌توان اورانیوم را با زور خارج کرد، از توضیح درباره گزینه‌ها و برنامه‌های نظامی خودداری کرد، اما این موضوع را «ماموریتی فوق‌العاده مهم» خواند.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239332
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239332_1778431127.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+کلن | آلمان؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239331
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239331_1778431128.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رگنسبورگ | المان؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239330
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239330_1778431131.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+آرهوس | دانمارک؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239329
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239329_1778431133.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه اردن حمله با پهپاد به کویت را محکوم کرد و آن را نقض آشکار قوانین بین‌المللی و منشور سازمان ملل و تجاوز به حاکمیت کویت دانست.
+اردن تاکید کرد در کنار کویت ایستاده و از هر اقدامی که این کشور برای حفظ حاکمیت، امنیت و سلامت شهروندان و ساکنانش انجام دهد، حمایت می‌کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239328
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239328_1778431133.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نخستین تراکنش آزمایشی موفق پرداخت الکترونیکی از طریق شبکه‌های ویزا و مسترکارت در سوریه را پس از ۱۵ سال وقفه انجام شد.
+
+به گزارش اس‌پی‌تودی، این تراکنش یک آزمایش کنترل‌شده بوده و به معنای راه‌اندازی عمومی خدمات نیست، اما نشان می‌دهد پرداخت‌های بین‌المللی با کارت می‌توانند در چارچوب مقررات بانکی سوریه پردازش و تسویه شوند.
+
+این اقدام پس از تفاهم‌نامه بیمیرا با بانک مرکزی سوریه و تصمیم این بانک برای مجاز کردن همکاری با شبکه‌های پرداخت جهانی انجام شده است. بانک مرکزی سوریه این روند را گامی برای افزایش شمول مالی و باز کردن بازار این کشور به سیستم‌های مالی بین‌المللی دانسته است.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239327
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239327_1778431135.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سیدنی | استرالیا؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239326
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239326_1778431138.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برلین | آلمان؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239325
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239325_1778431141.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️کاظم غریب‌آبادی، معاون حقوقی و بین‌المللی وزارت خارجه جمهوری اسلامی، روز یکشنبه هشدار داد حضور ناوهای فرانسوی و انگلیسی و یا هر کشور دیگری برای همراهی احتمالی با اقدامات آمریکا در تنگه هرمز، با «پاسخ قاطع و فوری» نیروهای مسلح جمهوری اسلامی مواجه خواهد شد.
+
+غریب‌آبادی در پیامی در شبکه اجتماعی ایکس نوشت، هرگونه اعزام و استقرار ناوشکن‌های فرامنطقه‌ای در اطراف تنگه هرمز با ادعای «حفاظت از کشتیرانی»، چیزی جز تشدید بحران در منطقه نیست.
+
+این مقام وزارت امورخارجه جمهوری اسلامی ادعا کرد منشأ ناامنی در منطقه «توسل غیرقانونی به زور، تهدید مستمر علیه دولت‌های ساحلی، محاصره دریایی و بی‌اعتنایی به منشور ملل متحد» است.
+
+معاون وزیر خارجه جمهوری اسلامی همچنین تاکید کرد: «تنگه هرمز ملک مشاع قدرت‌های فرامنطقه‌ای نیست»، بلکه آبراهی حساس در مجاورت دولت‌های ساحلی است و اعمال حاکمیت جمهوری اسلامی ایران بر این تنگه و تعیین ترتیبات حقوقی آن، «حق ایران به عنوان کشور ساحلی» محسوب می‌شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239324
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239324_1778431142.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مایک والتز، سفیر آمریکا در سازمان ملل متحد، روز یکشنبه گفت جهان نباید اجازه دهد جمهوری اسلامی اقتصاد جهانی را «گروگان» بگیرد. اظهاراتی که همزمان با ارسال پاسخ آخرین پیشنهاد تهران به واشنگتن مطرح شده است.
+
+والتز در گفت‌وگو با برنامه «فاکس نیوز ساندی» گفت: «جهان نباید رژیم ایران را تحمل کند که تلاش می‌کند کل اقتصاد جهانی را خفه کند.»
+
+سفیر آمریکا در سازمان ملل متحد جمهوری اسلامی را متهم کرد با مین‌گذاری دریایی و حمله به کشتی‌ها امنیت کشتیرانی را تهدید می‌کند و افزود: «آن‌ها حتی اکنون در تلویزیون دولتی ایران درباره هدف قرار دادن کابل‌های زیردریایی که داده‌های مالی، اطلاعات ابری و انواع اطلاعات مهم اقتصادی را از خلیج فارس منتقل می‌کنند، صحبت می‌کنند.»
+
+والتز همچنین گفت واشنگتن در حال بررسی پاسخ ایران به آخرین پیشنهاد آمریکا برای پایان جنگ است.
+
+والتز افزود: «خواهیم دید ایرانی‌ها شب گذشته در پاسخ به خط قرمز بسیار روشن ما چه چیزی ارائه کرده‌اند.» او تاکید کرد دونالد ترامپ بارها گفته است جمهوری اسلامی «هرگز نباید به سلاح هسته‌ای دست پیدا کند» و «نمی‌تواند اقتصاد جهان را گروگان بگیرد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239323
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239323_1778431143.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهور آمریکا، در بخش دیگری از مصاحبه با شریل اتکیسون، خبرنگار آمریکایی، در پاسخ به این که آیا جنگ علیه جمهوری اسلامی تمام شده، گفت: «نه، من این را نگفتم. من گفتم آن‌ها شکست خورده‌اند، اما این به معنای پایان کارشان نیست.»
+
+ترامپ افزود: «ما می‌توانیم دو هفته دیگر هم وارد عمل شویم و هر هدفی را بزنیم. اهداف مشخصی داشتیم و احتمالا ۷۰ درصد آن‌ها را زده‌ایم، اما اهداف دیگری هم داریم که ممکن است به آن‌ها حمله کنیم.»
+
+رییس‌جمهور آمریکا تاکید کرد: «اما حتی اگر این کار را هم نکنیم، سال‌های زیادی طول می‌کشد تا آن‌ها دوباره بازسازی کنند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239322
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239322_1778431144.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برلین | آلمان؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239321
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239321_1778431146.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پراگ | چک؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 90493
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90493_1778431148.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ در مورد رابطه خود با رئیس‌جمهور چین شی جین‌پینگ پیش از دیدار پیش‌رو با او:
+
+رابطه من با رئیس‌جمهور شی بسیار خوب است. من رهبران دیگر را نمی‌شناسم، اما رئیس‌جمهور شی مرد خوبی است، مرد باهوشی است، چین را دوست دارد.
+
+و من منتظر حضورم هستم. ما قبلاً یک بار این کار را انجام دادیم و شگفت‌انگیز بود. قرار است یک سفر شگفت‌انگیز باشد، فکر می‌کنم قرار است یک سفر شگفت‌انگیز باشد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90492
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90492_1778431149.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فرماندهی مرکزی ایالت متحده:
+بیش از 20 کشتی جنگی ایالات متحده در حال اعمال محاصره علیه ایران هستند.
+
+نیروهای سنتکام 61 کشتی تجاری رو بازگرداندند و 4 کشتی رو غیرفعال کردند تا از رعایت قوانین اطمینان حاصل شود.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90491
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90491_1778431150.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شرکت ایرفرانس: به‌دلیل شرایط امنیتی، پروازها به دبی، ریاض، تل‌آویو و بیروت تا 20 می (۳۰ اردیبهشت) لغو شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 75384
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75384_1778431151.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Afkham_minus
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75383
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75383_1778431151.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رحیم نادعلی، معاون فرهنگی سپاه «محمد رسول‌الله» تهران گفت: «در جشن بزرگ پیوند آسمانی زوج‌های جان‌فدا، خودروهای جیپ جنگی برای جابه‌جایی عروس و دامادها در نظر گرفته شده که با گل‌آرایی، پرچم جمهوری اسلامی و تصاویر رهبری تزئین شده و زوج‌ها در این خودروها در مراسم حضور خواهند یافت.»
+
+او افزود زوج‌های شرکت‌کننده قرار است با «ماشین‌های عروسی به شکل جیپ نظامی» و «خودروهای نظامی گل‌کاری‌شده» در سطح شهر حضور پیدا کنند تا «فضای شهر را به یک شکل هنری و نظامی» درآورند.
+
+به گفته او، هدف این است که نشان داده شود این «زوج‌های جانفدا» جان خود را «زیر پرچم جمهوری اسلامی تقدیم این نظام خواهند کرد» و «از هیچ چیز نمی‌ترسند.»
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75378
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئیس‌جمهور آمریکا می‌گوید عملیات نظامی در ایران تمام نشده و ارتش ایالات متحده می‌تواند اهداف دیگری را نیز هدف قرار دهد.
+دونالد ترامپ در گفت‌وگویی با شریل اتکیسون، مجری آمریکایی، که هفته گذشته ضبط و روز یکشنبه ۲۰ اردیبهشت پخش شده است، در پاسخ به این سوال که آیا عملیات رزمی در ایران تمام شده است، گفت: «نه، من چنین چیزی نگفتم. من گفتم آن‌ها شکست خورده‌اند، اما این به آن معنا نیست که کارشان تمام شده است. ما می‌توانیم به مدت دو هفته بیشتر هم وارد عمل شویم و تک‌تک اهداف را هدف قرار دهیم.»
+او با اشاره به این که در حملات آمریکا و اسرائیل طی جنگ اخیر «احتمالا ۷۰ درصد» اهداف مورد اصابت قرار گرفتند، افزود: «ما اهداف دیگری هم داریم که احتمالاً می‌توانیم به آن‌ها حمله کنیم. اما حتی اگر این کار را نکنیم، سال‌ها طول می‌کشد تا آن‌ها دوباره بازسازی شوند.»
+به نظر می‌رسد اظهارات آقای ترامپ پیش از ارسال پاسخ ایران به آخرین پیشنهاد آمریکا برای این توافق انجام شده است. هرچند که او پیشنهادات قبلی ایران را رد کرده بود.
+رئیس‌جمهور آمریکا در مصاحبه با شریل اتکیسون همچنین دربارهٔ اورانیوم غنی‌شده ایران که در عمق زمین و در تأسیسات هدف قرار گرفته در جنگ ۱۲ روزه سال گذشته مدفون شده‌اند، گفت: «ما در مقطعی آن را به دست خواهیم آورد… ما آنجا را تحت نظارت داریم.»
+ترامپ اضافه کرد: «من چیزی به نام نیروی فضایی ایجاد کردم و آن‌ها آنجا را زیر نظر دارند… اگر کسی به آن محل نزدیک شود، ما مطلع خواهیم شد و آن‌ها را نابود خواهیم کرد.»
+او بارها اشاره کرده است که توافق با ایران باید شامل تحویل ذخایر اورانیوم غنی‌شده ایران به آمریکا باشد. تهران چنین درخواستی را رد کرده است.
+@VahidHeadline
+رئیس‌جمهور آمریکا گفت: «ما نمی‌توانیم اجازه بدهیم ایران سلاح هسته‌ای داشته باشد، چون آنها دیوانه‌اند. نمی‌توانیم اجازه دسترسی هسته‌ای به آنها بدهیم. اوباما این کار را کرد. اگر من توافق هسته‌ای ایران را لغو نکرده بودم، الان سلاح هسته‌ای را داشتند و الان علیه اسرائیل و خاورمیانه و شاید حتی فراتر از آن استفاده می‌کردند. می‌دانید، آنها در واقع موشک‌هایی دارند که دیدید می‌توانند به اروپا برسند.»
+از آقای ترامپ سوال شد آیا این درست که عملیات رزمی علیه ایران تمام شده است.
+رئیس‌جمهور آمریکا پاسخ داد:«من این را نگفتم. من گفتم آنها شکست خورده‌اند اما این به این معنا نیست که کارشان تمام شده است. ما می‌توانیم دو هفته دیگر هم وارد عمل شویم و هر هدفی را بزنیم. ما اهداف مشخصی داریم که احتمالاً ۷۰ درصد آن‌ها را زده‌ایم اما اهداف دیگری هم هستند که می‌توانیم بزنیم.»
+آقای ترامپ گفت حتی اگر هم این کار را نکنیم، بازسازی سال‌های زیادی برای ایران طول می‌کشد.
+@VahidHeadline
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در گفت‌وگو با سی‌بی‌اس نیوز درباره اورانیوم غنی‌شده در ایران و جنگ علیه جمهوری اسلامی گفت دونالد ترامپ به او گفته می‌خواهد وارد آنجا شود و به نظر او این اقدام از نظر عملی امکان‌پذیر است. او افزود اگر توافقی حاصل شود و بتوان وارد شد و این برنامه را برچید، این بهترین راه خواهد بود.
+نتانیاهو از پاسخ به این پرسش که در صورت عدم توافق چه رخ خواهد داد خودداری کرد و گفت برای این موضوع جدول زمانی تعیین نمی‌کند، اما این ماموریت را بسیار مهم دانست.
+IranIntl
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 336503
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336503_1778431152.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده نشان می‌دهند یکشنبه ۲۰ اردیبهشت ایرانیان مقیم شهرهای مونیخ در آلمان، وین اتریش و آرهوس دانمارک علیه جمهوری اسلامی تجمع کردند.
+</div>
+
+## IranIntlTV — post 336502
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336502_1778431155.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کی‌یر استارمر، نخست‌وزیر بریتانیا، پس از نتایج ضعیف حزب کارگر در انتخابات گفت پیام رای‌دهندگان را شنیده، اما تاکید کرد کنار نخواهد رفت. با این حال، فشارها در درون حزب افزایش یافته است و دست‌کم ۲۱ نماینده حزب کارگر خواستار کناره‌گیری او شده‌اند.
+
+گفت‌وگو با تاج‌الدین سروش، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 336501
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336501_1778431157.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران اینترنشنال نشان می‌دهد ایرانیان مقیم پاریس روز ۲۰ اردیبهشت‌ماه در پاسخ به فراخوان شاهزاده رضا پهلوی، با برگزاری راهپیمایی و تجمع در این شهر حضور یافتند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 336500
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336500_1778431159.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، ایرانیان ساکن هلند و جمهوری چک، یکشنبه ۲۰ اردیبهشت با فراخوان شاهزاده رضا پهلوی و در اعتراض به اعدام‌های جمهوری اسلامی، در شهرهای آمستردام و پراگ تجمع کردند.
+</div>
+
+## IranIntlTV — post 336499
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336499" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار نیم‌روزی | یکشنبه ۲۰ اردیبهشت
+@iranintlTV
+</div>
+
+## IranIntlTV — post 336498
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336498_1778431163.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه اردن حمله با پهپاد به کویت را محکوم کرد و آن را نقض آشکار قوانین بین‌المللی و منشور سازمان ملل و تجاوز به حاکمیت کویت دانست.
+اردن تاکید کرد در کنار کویت ایستاده و از هر اقدامی که این کشور برای حفظ حاکمیت، امنیت و سلامت شهروندان و ساکنانش انجام دهد، حمایت می‌کند.
+https://iranintl.com/202605108954
+</div>
+
+## IranIntlTV — post 336497
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336497_1778431163.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با گذشت دو ماه از انتخاب مجتبی خامنه‌ای به عنوان سومین رهبر نظام، غیبت ادامه‌دار او بر روند دیپلماسی تاثیر گذاشته است. وال‌استریت ژورنال نوشت در حالی که مذاکره‌کنندگان به تصمیم مجتبی خامنه‌ای نیاز دارند او در بستر مرگ است. مجتبی کجاست و چه می‌کند؟
+
+
+گزارشی از مجتبا پورمحسن
+@iranintltv
+</div>
+
+## IranIntlTV — post 336496
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336496_1778431166.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهور آمریکا، در بخش دیگری از مصاحبه با شریل اتکیسون، خبرنگار آمریکایی، در پاسخ به این که آیا جنگ علیه جمهوری اسلامی تمام شده، گفت: «نه، من این را نگفتم. من گفتم آن‌ها شکست خورده‌اند، اما این به معنای پایان کارشان نیست.»
+
+ترامپ افزود: «ما می‌توانیم دو هفته دیگر هم وارد عمل شویم و هر هدفی را بزنیم. اهداف مشخصی داشتیم و احتمالا ۷۰ درصد آن‌ها را زده‌ایم، اما اهداف دیگری هم داریم که ممکن است به آن‌ها حمله کنیم.»
+
+رییس‌جمهور آمریکا تاکید کرد: «اما حتی اگر این کار را هم نکنیم، سال‌های زیادی طول می‌کشد تا آن‌ها دوباره بازسازی کنند.»
+https://iranintl.com/202605102371
+</div>
+
+## IranIntlTV — post 336495
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336495_1778431168.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری ایرنا گزارش داد پاسخ جمهوری اسلامی به آخرین متن پیشنهادی آمریکا برای پایان دادن به جنگ، یکشنبه از طریق میانجی پاکستانی ارسال شده است.
+
+جزییات بیشتر با مرضیه حسینی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 336494
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336494_1778431170.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس ویدیوی رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم فرانسه یکشنبه ۲۰ اردیبهشت در تجمع اعتراضی پاریس پرفورمنسی با موضوع انقلاب ملی اجرا کردند.
+</div>
+
+## IranIntlTV — post 336493
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336493_1778431173.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ایالات متحده، سنتکام، اعلام کرد از زمان آغاز محاصره دریایی جنوب ایران ۶۱ کشتی تجاری مجبور به تغییر مسیر شده‌اند. چهار کشتی نیز در پی حملات نیروهای آمریکایی از کار افتاده و متوقف شده‌اند.
+سنتکام افزود بیش از ۲۰ کشتی جنگی متعلق به ایالات متحده در حال اجرای عملیات در این منطقه هستند.
+https://iranintl.com/202605105959
+</div>
+
+## ManotoTV — post 105264
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105264_1778431174.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بولونیا | ایتالیا؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## ManotoTV — post 105263
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105263_1778431176.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از ایران: «بدون نصب، عضو اپ‌های حکومتی شدم»
+</div>
+
+## ManotoTV — post 105262
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105262_1778431179.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+دوبلین | ایرلند؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## ManotoTV — post 105261
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105261_1778431181.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+بیرمنگام | بریتانیا؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## ManotoTV — post 105260
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105260_1778431184.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در گفت‌وگو با سی‌بی‌اس نیوز گفت جنگ با ایران تمام نشده، زیرا به گفته او هنوز اورانیوم غنی‌شده، سایت‌های غنی‌سازی، نیروهای نیابتی مورد حمایت ایران و برنامه موشک‌های بالستیک باقی مانده‌اند.
+
+نتانیاهو گفت بخش زیادی از توان جمهوری اسلامی تضعیف شده، اما هنوز «کارهایی هست که باید انجام شود».
+
+او درباره چگونگی خارج کردن اورانیوم با غنای بالا از ایران گفت در صورت وجود توافق، می‌توان وارد شد و آن را خارج کرد و این «بهترین راه» است.
+
+نتانیاهو در پاسخ به این پرسش که آیا بدون توافق می‌توان اورانیوم را با زور خارج کرد، از توضیح درباره گزینه‌ها و برنامه‌های نظامی خودداری کرد، اما این موضوع را «ماموریتی فوق‌العاده مهم» خواند.
+</div>
+
+## ManotoTV — post 105259
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105259_1778431186.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+کلن | آلمان؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## ManotoTV — post 105258
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105258_1778431187.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رگنسبورگ | المان؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## ManotoTV — post 105257
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105257_1778431190.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+آرهوس | دانمارک؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## ManotoTV — post 105256
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105256_1778431192.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نخستین تراکنش آزمایشی موفق پرداخت الکترونیکی از طریق شبکه‌های ویزا و مسترکارت در سوریه را پس از ۱۵ سال وقفه انجام شد.
+
+به گزارش اس‌پی‌تودی، این تراکنش یک آزمایش کنترل‌شده بوده و به معنای راه‌اندازی عمومی خدمات نیست، اما نشان می‌دهد پرداخت‌های بین‌المللی با کارت می‌توانند در چارچوب مقررات بانکی سوریه پردازش و تسویه شوند.
+
+این اقدام پس از تفاهم‌نامه بیمیرا با بانک مرکزی سوریه و تصمیم این بانک برای مجاز کردن همکاری با شبکه‌های پرداخت جهانی انجام شده است. بانک مرکزی سوریه این روند را گامی برای افزایش شمول مالی و باز کردن بازار این کشور به سیستم‌های مالی بین‌المللی دانسته است.
+</div>
+
+## ManotoTV — post 105255
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105255_1778431194.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سیدنی | استرالیا؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## ManotoTV — post 105254
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105254_1778431196.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برلین | آلمان؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## ManotoTV — post 105253
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105253_1778431199.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برلین | آلمان؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## ManotoTV — post 105252
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105252_1778431201.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پراگ | چک؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## FarsiVOA — post 217356
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_217356_1778431203.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست وزیر اسرائیل، روز یکشنبه ۲۰ اردیبهشت، در گفت‌وگو با برنامه ۶۰ دقیقه سی‌بی‌اس نیوز، گفت: جنگ با جمهوری اسلامی ایران «تمام نشده است.»
+
+او افزود که اورانیوم غنی‌شده با غلظت بالا باید از ایران خارج شود و تأسیسات غنی‌سازی نیز باید برچیده شود.
+
+نتانیاهو، با اشاره به قابلیت‌های هسته‌ای جمهوری اسلامی، و همچنین نیروهای نیابتی آن در کشورهای دیگر و ظرفیت ساخت موشک نیز گفت: «اکنون، ما مقدار زیادی از آن را تخریب کرده‌ایم.» او افزود اما مواردی هنوز باقی مانده است و «کارهایی باید انجام شود.»
+
+ناظران بین‌المللی تخمین می‌زنند که جمهوری اسلامی هنوز حدود ۹۷۰ پوند اورانیوم تقریباً در سطح بمب دارد.
+
+گزارش کامل را در وب‌سایت صدای آمریکا بخوانید.
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217355
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺وزیر انرژی آمریکا: فشار اقتصادی بر رژیم ایران را افزایش می‌دهیم تا آن‌ها را وادار به مذاکره کنیم
+
+◾️کریس رایت، وزیر انرژی ایالات متحده، یکشنبه ۲۰ اردیبهشت گفت فشار اقتصادی آمریکا بر رژیم ایران به‌طور قابل‌توجهی در حال افزایش است، و واشنگتن از ابزارهای مالی و اقتصادی مختلفی برای وادار کردن جمهوری اسلامی به بازگشت به میز مذاکره استفاده می‌کند.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/chris-wright-cbs-inerview-iran-economic-pressure-increasing/8148505.html
+</div>
+
+## FarsiVOA — post 217354
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_217354_1778431205.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رضا تقی‌زاده، چهره شناخته‌شده مشروطه‌خواهان پادشاهی‌خواه در عمق میدان گفت: شاهزاده پهلوی تا کنون دو تا خشت را هم روی هم نگذاشته. او با اشاره به شخصیت فرح پهلوی گفت: ای کاش ایشان از مادرش الگو می‌گرفت
+</div>
+
+## FarsiVOA — post 217353
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺دونالد ترامپ: شکست نظامی رژیم ایران به معنای پایان کامل عملیات رزمی نیست
+
+◾️دونالد ترامپ، رئیس جمهوری ایالات متحده، در گفت‌وگویی اختصاصی با برنامه «فول مژر» به میزبانی شریل اتکیسون، گفت حکومت ایران از نظر نظامی «شکست خورده» است و توان بازسازی سریع ظرفیت‌های نظامی و هسته‌ای خود را ندارد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/national-desk-sharyl-attkisson-president-trump-interview/8148497.html?withmediaplayer=1
+</div>
+
+## FarsiVOA — post 217352
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رضا تقی‌زاده، چهره شناخته‌شده مشروطه‌خواهان پادشاهی‌خواه در عمق میدان: شاهزاده پهلوی در انتخاب اطرافیان خود مسئول است. باید پرسید چرا شاهزاده پهلوی به جز اسرائیل مورد اقبال هیچ قدرت سیاسی دیگری نبوده؟
+</div>
+
+## FarsiVOA — post 217351
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺بنیامین نتانیاهو: جنگ با جمهوری اسلامی تمام نشده است
+
+◾️بنیامین نتانیاهو، نخست وزیر اسرائیل، روز یکشنبه ۲۰ اردیبهشت، در گفت‌وگو با برنامه ۶۰ دقیقه سی‌بی‌اس نیوز، گفت: جنگ با جمهوری اسلامی ایران «تمام نشده است.»
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/benjamin-netanyahu-iran-war-israel-uranium/8148494.html
+</div>
+
+## FarsiVOA — post 217350
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت امور خارجه قطر روز یکشنبه ۲۰ اردیبهشت اعلام کرد نخست‌وزیر این کشور در گفت‌وگو با وزیر امور خارجه جمهوری اسلامی به او گفته است که استفاده از تنگه هرمز به‌عنوان «ابزار فشار» تنها به عمیق‌تر شدن بحران در خلیج فارس منجر خواهد شد.
+
+شیخ محمد بن عبدالرحمن آل‌ثانی، نخست‌وزیر و وزیر امور خارجه قطر، همچنین در این تماس تلفنی با عباس عراقچی، وزیر امور خارجه رژیم ایران، تأکید کرد که همه طرف‌های درگیر در این مناقشه باید به تلاش‌های میانجی‌گرانه برای پایان دادن به جنگ پاسخ مثبت دهند.
+
+وزارت امور خارجه قطر اعلام نکرد این تماس تلفنی چه زمانی انجام شده است.
+
+گزارش کامل را در وب‌سایت صدای آمریکا بخوانید.
+
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 124530
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124530_1778431207.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶هشدار قطر به ایران نسبت به استفاده از تنگه هرمز به عنوان اهرم فشار
+
+قطر به ایران هشدار داده است که در مذاکرات جاری با ایالات متحده برای پایان دادن به جنگ فعلی، از تنگه هرمز به عنوان "ابزار فشار" استفاده نکند.
+
+بنابر اعلام دولت دوحه، محمد بن عبدالرحمن آل ثانی، نخست وزیر قطر، روز یکشنبه ۲۰ اردیبهشت (۱۰ مه) در تماس تلفنی با عباس عراقچی، وزیر خارجه ایران، گفت: «اگر تهران از این آبراه کلیدی به عنوان اهرم فشار استفاده کند، این بحران تنها تشدید خواهد شد.»
+
+آل ثانی گفت آزادی دریاها به عنوان یک اصل "غیرقابل مذاکره" است.
+
+همزمان با نقش رسمی پاکستان در میانجیگری برای پایان دادن به جنگ ایران، قطر نیز در پشت صحنه فعال بوده است.
+
+وب‌سایت خبری آمریکایی "اکسیوس" گزارش داده است که آل ثانی روز شنبه ۹ مه در میامی با مارکو روبیو، وزیر خارجه آمریکا و استیو ویتکاف، فرستاده ویژه دونالد ترامپ، در قالب تلاش‌ها برای پایان دادن به جنگ، دیدار کرده است.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 124529
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124529_1778431207.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶انتقال اکرم و اعظم دانشورکار از زندان قرچک به مکانی نامعلوم
+
+به گزارش خبرگزاری حقوق بشری هرانا اکرم و اعظم دانشورکار، خواهران اکبر دانشورکار، زندانی سیاسی اعدام شده در فروردین ۱۴۰۵، که در زندان قرچک ورامین محبوس بودند، از این زندان به مکان نامعلومی منتقل شدند.
+
+به نوشته هرانا، این دو خواهر در پی مراجعات مکرر به زندان قزلحصار، پزشکی قانونی و مراجع قضایی برای تحویل پیکر برادرشان، در روز شنبه ۲۹ فروردین ۱۴۰۵ بازداشت و به زندان قرچک ورامین منتقل شده بودند.
+
+"اجتماع و تبانی در امنیت داخلی و اختلال در نظم عمومی" از اتهامات مطرح شده علیه این دو خواهر هستند و اکنون پس از روزها بی‌خبری از وضعیت آنان، خانواده در نگرانی شدیدی به سر می‌برد.
+
+اکبر دانشور کار از هواداران "سازمان مجاهدین خلق ایران"، به اتهام بغی از طریق عضویت در گروه‌های مخالف نظام به اعدام محکوم شد. این حکم روز دوشنبه ۱۰ فروردین ماه ۱۴۰۵ در زندان قزلحصار کرج به اجرا در آمد.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 13838
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/KXs-so7OROY?feature=share راس ساعت 20 به وقت تهران لایو آغاز میشه حتما تشریف بیارید چندتا اتفاق جالب رو میخوایم در موردش صحبت کنیم
+</div>
+
+## Persian_Trend_Official — post 13837
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصمیم گرفتم لایو های شبانه رو از این به بعد، حدود ساعت 20 به وقت ایران اجرا کنم .
+</div>
+
+## Persian_Trend_Official — post 13836
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_13836_1778431208.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴لغو پروازهای شرکت هواپیمایی فرانسه به ۴ مقصد
+
+💢ایرفرانس در بیانیه‌ای اعلام کرد: به‌دلیل شرایط امنیتی، پروازها به دبی، ریاض، تل‌آویو و بیروت تا ۲۰ می (۳۰ اردیبهشت) لغو شده است.
+
+💢ازسرگیری عملیات پروازی منوط به ارزیابی مجدد وضعیت محلی خواهد بود که به‌شدت درحال تغییر است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13835
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_13835_1778431209.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نتانیاهو: جنگ با ایران تمام نشده است
+
+💢هنوز مواد هسته‌ای و اورانیوم غنی‌شده‌ای وجود دارد که باید از ایران خارج شود.
+
+💢هنوز سایت‌های غنی‌سازی‌ هستند که باید برچیده شوند. هنوز گروه‌های نیابتی وجود دارند که ایران از آن‌ها حمایت می‌کند.
+
+💢همچنین موشک‌های بالستیکی وجود دارند که آن‌ها همچنان خواهان تولیدشان هستند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 19904
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_19904_1778431211.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پست جدید ترامپ.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19903
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ارتش اسرائیل :
+
+از ساکنان روستاهای دیرالزهرانی، جرجو و سجاد در جنوب لبنان می‌خواهیم تخلیه شده و یک کیلومتر از این مناطق فاصله بگیرن چون داریم میایم بالا سر حزب الله.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 280679
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_280679_1778431212.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تجمعات شبانه حامیان حکومت در ایران در حالی به هفتادمین شب رسیده که کشمکش‌های سیاسی در مورد مذاکره با آمریکا و حجاب در این تجمعات همچنان ادامه دارد.
+ 
+پس از آن که عباس عبدی و صادق زیباکلام، دو تحلیلگر سیاسی در تهران به نقش این تجمعات در ایجاد فشار برای ادامه جنگ و جلوگیری از توافق با آمریکا اشاره کردند، دادستانی تهران امروز علیه هر دو اعلام جرم کرد.
+ 
+همچنین گزارش‌هایی از خطابه و شعار علیه محمدباقر قالیباف، عباس عراقچی و تیم مذاکره‌کننده در این تجمعات منتشر شده است. در برخی از این تجمع‌ها بدبین کردن مردم به مسئولان را «بازی در زمین دشمن» خوانده شده است از جمله در رشت. محمدعلی پورمختار، نماینده ادوار مجلس، در مورد این شعارها گفت: «شعارهایی که علیه قالیباف و تیم مذاکره‌کننده در تجمعات شبانه سر داده می‌شود، بدون تردید موجب دوقطبی‌سازی خواهد شد.» حجاب برخی زنان شرکت‌کننده هم  واکنش‌‌برانگیز شده است.
+ 
+@bbcpersian
+ 
+</div>
+
+## BBCPersian — post 280669
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_280669_1778431215.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️فعالیت سفارتخانه‌‌های ایران در شبکه اجتماعی ایکس در پی جنگ آمریکا و اسرائیل با ایران مورد توجه میلیون‌ها مخاطب غیر ایرانی و همچنین کارشناسان تبلیغات جنگ قرار گرفته است.
+
+این حساب‌ها که تا پیش از جنگ، اعلان‌های اداری برای شهروندان ایران و بیانیه‌‌های رسمی دیپلماتیک را بازنشر می‌‌کردند، در نبود دیگر صداهایی که در پی قطع اینترنت در ایران به بیرون راه نمی‌یابند، ناگهان جبهه‌ای گشودند که تا پیش از آن چندان از آن در جنگ نرم استفاده نشده بود.
+
+پویا قربانی از بخش دیجیتال بی‌بی‌سی فارسی با کوری الپرت، پژوهشگر دانشگاه ملبورن در حوزه «تاثیر هوش مصنوعی بر دموکراسی و سیاست» گفتگو کرده و از او پرسیده است که بهره‌گیری از این شیوه نوین پروپاگاندا چه نشانه‌ای از تحول در دیپلماسی دیجیتال در جنگ‌ها به دست ما می‌دهد؟
+
+بی‌بی‌سی فارسی درباره این موضوع با سفارت ایران در آفریقای جنوبی و تایلند تماس گرفت اما پاسخی به پرسش‌های ما داده نشد.
+
+آلبوم را ورق بزنید
+@bbcpersian
+</div>
+
+## Hranews — post 112867
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود عبدالله‌زاده از زندان نقده آزاد شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – مسعود (سوران) عبدالله‌زاده، شهروند بازداشتی، امروز یکشنبه با تودیع وثیقه از زندان نقده آزاد شد.
+
+ادامه مطلب
+
+#مسعود_عبدالله‌زاده
+#سوران_عبدالله‌زاده
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## manototv — post 105264
+
+<div align="center">
+  <a href="telegram/content/manototv_105264_1778431217.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بولونیا | ایتالیا؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## manototv — post 105263
+
+<div align="center">
+  <a href="telegram/content/manototv_105263_1778431219.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از ایران: «بدون نصب، عضو اپ‌های حکومتی شدم»
+</div>
+
+## manototv — post 105262
+
+<div align="center">
+  <a href="telegram/content/manototv_105262_1778431221.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+دوبلین | ایرلند؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## manototv — post 105261
+
+<div align="center">
+  <a href="telegram/content/manototv_105261_1778431224.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+بیرمنگام | بریتانیا؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## manototv — post 105260
+
+<div align="center">
+  <a href="telegram/content/manototv_105260_1778431226.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در گفت‌وگو با سی‌بی‌اس نیوز گفت جنگ با ایران تمام نشده، زیرا به گفته او هنوز اورانیوم غنی‌شده، سایت‌های غنی‌سازی، نیروهای نیابتی مورد حمایت ایران و برنامه موشک‌های بالستیک باقی مانده‌اند.
+
+نتانیاهو گفت بخش زیادی از توان جمهوری اسلامی تضعیف شده، اما هنوز «کارهایی هست که باید انجام شود».
+
+او درباره چگونگی خارج کردن اورانیوم با غنای بالا از ایران گفت در صورت وجود توافق، می‌توان وارد شد و آن را خارج کرد و این «بهترین راه» است.
+
+نتانیاهو در پاسخ به این پرسش که آیا بدون توافق می‌توان اورانیوم را با زور خارج کرد، از توضیح درباره گزینه‌ها و برنامه‌های نظامی خودداری کرد، اما این موضوع را «ماموریتی فوق‌العاده مهم» خواند.
+</div>
+
+## manototv — post 105259
+
+<div align="center">
+  <a href="telegram/content/manototv_105259_1778431228.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+کلن | آلمان؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## manototv — post 105258
+
+<div align="center">
+  <a href="telegram/content/manototv_105258_1778431230.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رگنسبورگ | المان؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## manototv — post 105257
+
+<div align="center">
+  <a href="telegram/content/manototv_105257_1778431232.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+آرهوس | دانمارک؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## manototv — post 105256
+
+<div align="center">
+  <a href="telegram/content/manototv_105256_1778431234.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نخستین تراکنش آزمایشی موفق پرداخت الکترونیکی از طریق شبکه‌های ویزا و مسترکارت در سوریه را پس از ۱۵ سال وقفه انجام شد.
+
+به گزارش اس‌پی‌تودی، این تراکنش یک آزمایش کنترل‌شده بوده و به معنای راه‌اندازی عمومی خدمات نیست، اما نشان می‌دهد پرداخت‌های بین‌المللی با کارت می‌توانند در چارچوب مقررات بانکی سوریه پردازش و تسویه شوند.
+
+این اقدام پس از تفاهم‌نامه بیمیرا با بانک مرکزی سوریه و تصمیم این بانک برای مجاز کردن همکاری با شبکه‌های پرداخت جهانی انجام شده است. بانک مرکزی سوریه این روند را گامی برای افزایش شمول مالی و باز کردن بازار این کشور به سیستم‌های مالی بین‌المللی دانسته است.
+</div>
+
+## manototv — post 105255
+
+<div align="center">
+  <a href="telegram/content/manototv_105255_1778431236.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سیدنی | استرالیا؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## manototv — post 105254
+
+<div align="center">
+  <a href="telegram/content/manototv_105254_1778431239.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برلین | آلمان؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## manototv — post 105253
+
+<div align="center">
+  <a href="telegram/content/manototv_105253_1778431241.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برلین | آلمان؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## manototv — post 105252
+
+<div align="center">
+  <a href="telegram/content/manototv_105252_1778431243.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پراگ | چک؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## alonews — post 119111
+
+<div align="center">
+  <a href="telegram/content/alonews_119111_1778431246.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کریس رایت، وزیر انرژی ایالات متحده، به شبکه ان‌بی‌سی گفت که یک توافق مرحله‌ای ممکن است برای حل تمام نگرانی‌ها در مورد برنامه هسته‌ای ایران کافی نباشد.
+
+
+🔴ما هیچ گزینه‌ای را در مورد ایران در مرحله پیش‌رو، از جمله اقدام نظامی، رد نمی‌کنیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119110
+
+<div align="center">
+  <a href="telegram/content/alonews_119110_1778431246.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون حمله اسرائیل به جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119109
+
+<div align="center">
+  <a href="telegram/content/alonews_119109_1778431246.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کارشناس صداوسیما: ‎
+موساد ساعتی ۳ دلار می‌دهد که دختران با تاپ و شلوار در میدان ولیعصر راه بروند. عدم ابلاغ قانون حجاب باعث جنگ شد!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119108
+
+<div align="center">
+  <a href="telegram/content/alonews_119108_1778431247.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حاکم امارات:
+امان از روزی که خشم عربی ما بیدار شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119107
+
+<div align="center">
+  <a href="telegram/content/alonews_119107_1778431247.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پوتین در سال ۲۰۲۲: یک فرد معتاد به مواد مخدر و نئونازی‌.
+
+
+🔴پوتین در سال ۲۰۲۶: آقای زلنسکی.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119106
+
+<div align="center">
+  <a href="telegram/content/alonews_119106_1778431248.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رای دادگاه صادرشد: آپارات ۳۶۰۰ میلیارد تومان به تلویزیون بدهد!
+
+
+🔴وبسایت آپارات در بیانیه‌ای از صدور رأی جدید دادگاه در پرونده شکایت صداوسیما خبر داد و نوشت: طی ۱۱ سال گذشته، آپارات با ۲۶ پرونده و شکایت از سوی سازمان صداوسیما مواجه بوده است؛ در حالی که ماهیت این سرویس، از ابتدا یک پلتفرم کاربرمحور برای انتشار محتوای کاربران بوده است.
+
+
+🔴در تازه‌ترین رأی صادرشده، روز گذشته مدیرعامل آپارات به پرداخت حدود ۳.۶ همت خسارت بابت انتشار محتوایی که توسط کاربران بر بستر این پلتفرم بارگذاری شده محکوم شده و دادگاه، مسئولیت این محتوا را متوجه پلتفرم دانسته است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119105
+
+<div align="center">
+  <a href="telegram/content/alonews_119105_1778431248.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شاهزاده سعودی:
+اگر به ایران حمله می کردیم تاسیسات نفتی و حیاتی کشورمان مورد هدف قرار می گرفت.
+
+
+🔴همکاری با پاکستان برای کاهش تنش‌، ریاض عقلانیت را انتخاب کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119104
+
+<div align="center">
+  <a href="telegram/content/alonews_119104_1778431248.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ونزوئلا در حال حاضر کشوری بسیار خوشحالی‌ست. آن‌ها بدبخت بودند و اکنون خوشحال هستند.
+
+
+🔴نفتی که در حال بیرون آمدن است عظیم است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/20 19:09
 ---
 
